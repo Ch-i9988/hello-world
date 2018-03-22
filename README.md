@@ -1,5 +1,5 @@
 # hello-world
 just another repository
 
-Hello, everyone Hello, novice, hard work, studying in the off hours, this is an uncle's world.
+Uncle on the road to the era of uncle. Work hard late at night to learn
 Master Uncle took the road to learn
